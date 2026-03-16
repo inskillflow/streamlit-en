@@ -6,8 +6,6 @@
 
 # Data Links + VIDEO:
 
-* [https://drive.google.com/drive/folders/17Cmg05yZFeWIC_ZCNwEGjQPB030Nk1EE?usp=sharing](https://drive.google.com/drive/folders/17Cmg05yZFeWIC_ZCNwEGjQPB030Nk1EE?usp=sharing)
-* [https://drive.google.com/drive/folders/1AvnBZcGnTznxmJE2sMPMkdMXK_a5gDnw?usp=sharing](https://drive.google.com/drive/folders/1AvnBZcGnTznxmJE2sMPMkdMXK_a5gDnw?usp=sharing)
 
 # 1 - Instructions:
 
